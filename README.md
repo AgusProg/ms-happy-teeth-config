@@ -1,0 +1,1 @@
+# ms-happy-teeth-config
